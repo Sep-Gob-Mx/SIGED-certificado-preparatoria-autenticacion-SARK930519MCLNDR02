@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SARK930519MCLNDR02
+SARK930519MCLNDR02
